@@ -13,7 +13,7 @@ As Admin:
 >> You can Check your Profile too
 
 🌎 Online Link:
-📎 https://miss-world-by-steven.up.railway.app/loginUser
+📎 https://miss-world-by-steven.up.railway.app/
 
 🪪 NAHIMANA Steven 
 📍 Kigali, RWANDA 🇷🇼 
