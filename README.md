@@ -14,6 +14,9 @@ As Admin:
 
 🌎 Online Link:
 📎 https://miss-world-by-steven.up.railway.app/
+If you want to login as ADMIN
+Email: Nahimanasteven@gmail.com
+Password: 111
 
 🪪 NAHIMANA Steven 
 
